@@ -1,1 +1,0 @@
-# Umut Hökelek
